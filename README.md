@@ -12,5 +12,5 @@ I have always been attracted to the beach and ocean, however, my research are do
 
 ## Contact Information
 
-*Email:* mattduggan2018@gmail.com
+*Email:* mattduggan2018@gmail.com 
 [Linkedin](https://www.linkedin.com/in/mattdug/)
